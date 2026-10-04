@@ -10,7 +10,7 @@ https://unbox-digital-printing.github.io/apps/
 
 ## Kontakt
 
-E-Mail: unobox.digital.printing@gmail.com
+E-Mail: unbox.digital.printing@gmail.com
 
 ## Datenschutz
 
